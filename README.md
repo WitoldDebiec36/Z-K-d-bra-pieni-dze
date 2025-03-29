@@ -10,3 +10,4 @@ Kolejna dorga do bogactwa to cyfrowe Voisem mocnym prawym procesorem od Translat
 To Post Mafia karze pracować 50 lat.
 Co do translatora trzeba napisać aplikację do podrabiania złota i piniedzy do druku kwnatowego jak w Banku. 
 Inej drogi po pieniądze nie ma duże piniądze. 
+Propronuje bankowość P2P. Do banku wpłacać jak się opłaca a tak Drukować. 
