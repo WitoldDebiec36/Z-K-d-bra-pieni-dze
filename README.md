@@ -9,3 +9,4 @@ Prosty sposób to renty i udawanie choroby psychicznej i odkładanie kasy do Ban
 Kolejna dorga do bogactwa to cyfrowe Voisem mocnym prawym procesorem od Translatora słownictwa podrabianie gotówki i złota i jego drukowanie z internetu rzeczy i wpłacanie do Banku na produkty inwstycyjne takie jak Konta Oszczędnościowe, Lokaty i lekie fundusze inwestycjne Bez ryzyka inwestycji w starty i ciąże czy Alimenty od Wesołowskiej Judi i Kubusia sądów rodzinych lewych. Inej drogi ku bogactwu nie ma. 
 To Post Mafia karze pracować 50 lat.
 Co do translatora trzeba napisać aplikację do podrabiania złota i piniedzy do druku kwnatowego jak w Banku. 
+Inej drogi po pieniądze nie ma duże piniądze. 
