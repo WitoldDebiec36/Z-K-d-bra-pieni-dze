@@ -7,3 +7,5 @@ To wszystko to oszczędzacze lub dają gratis oszczędzacze gazu wody i energi e
 Dorga do pieniedzy jest ciężka bez sprzętu się nie da lub książek i wiedzy. 
 Prosty sposób to renty i udawanie choroby psychicznej i odkładanie kasy do Banku na Lokaty i konta oszczędnościowe i lekie fundusze inewstycyjne bez ciąży i alimentów od Banku. Trzeba sprawdzić Banki czy dają ciężarną gratis jak za czasów Gierka i Stalina. 
 Kolejna dorga do bogactwa to cyfrowe Voisem mocnym prawym procesorem od Translatora słownictwa podrabianie gotówki i złota i jego drukowanie z internetu rzeczy i wpłacanie do Banku na produkty inwstycyjne takie jak Konta Oszczędnościowe, Lokaty i lekie fundusze inwestycjne Bez ryzyka inwestycji w starty i ciąże czy Alimenty od Wesołowskiej Judi i Kubusia sądów rodzinych lewych. Inej drogi ku bogactwu nie ma. 
+To Post Mafia karze pracować 50 lat.
+Co do translatora trzeba napisać aplikację do podrabiania złota i piniedzy do druku kwnatowego jak w Banku. 
